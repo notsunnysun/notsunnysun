@@ -1,6 +1,6 @@
 ### HOLAAAAAAAA :smile:
 
-**notsunnysun/notsunnysun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**notsunnysun**is a ✨ _special_ ✨ github project bloggy thing i started once
 capitalist conservatives and i have a mutual hatred especially if they're a**holes
 she/her
 pirate if ur morally questionable heheh
