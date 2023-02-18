@@ -6,6 +6,7 @@ capitalist conservatives and i have a mutual hatred especially if they're a**hol
 she/her   
 
 pirate to those morally questionable losers heheh                                                                                                                            
+
 GARLIC BREEEAAAAAAAD    
 
 i like stuff ig
