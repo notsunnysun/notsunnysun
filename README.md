@@ -1,6 +1,6 @@
 ### HOLAAAAAAAA :smile:
 
-**notsunnysun**is a ✨ _special_ ✨ github project bloggy thing i started once                                                                                                                                             
+**notsunnysun** is a ✨ _special_ ✨ github project bloggy thing i started once                                                                                                                                             
 capitalist conservatives and i have a mutual hatred especially if they're a**holes     
 
 she/her   
